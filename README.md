@@ -6,5 +6,6 @@ My intention here is that Atari computer ST/Falcon computer fans should be able 
 
 Atari logo and everything in connection to the brand is the trademark of Atari Inc.
 
-
+Stickers and sleeve should have the print marks.
+Boxes show the cut edges and artwork onlayers.
 
